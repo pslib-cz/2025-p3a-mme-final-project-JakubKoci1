@@ -86,3 +86,7 @@ maximální tloušťka: 1,2 cm (nebo mírně méně)
 Autor není zodpovědný za jakékoliv úrazy, škody nebo jiná poškození způsobená rychlou akcelerací objektu proti zdi nebo jiné osobě, zejména při použití horních končetin ve stavu silných negativních emocí, vyvolaných tímto produktem.
 
 Používání stojanu je na vlastní odpovědnost.
+
+## 🔗 Link na Printables položku
+
+https://www.printables.com/model/1567618-adjustable-articulated-phone-stand-3d-printed
